@@ -23,7 +23,7 @@ Visit our website for more details:
 👉 https://cleaningmaidz.com/commercial-cleaning-ottawa/
 
 ## 📍 Service Area
-Serving **Ottawa, Ontario**, and nearby regions.
+Serving **Ottawa, Kanata, Orleans and Nepean**, and nearby regions.
 
 ## 📧 Contact Us
 For quotes or business inquiries, visit  
